@@ -12,7 +12,7 @@ Update 3: He said this.
 <br><img src="aifsdf.PNG" style="width: 15vw;"><br>
 My response: YOU ALWAYS PLAY SCP:SL, LIAR. Second off: Cosmos is easy to set up, you *obviousally* didn't even try! And third off: GEMS NT is much easier to program for than GEMS. So you sack of shit, stop trying to defend yourself.
 
-He also said he was at the beach or was chilling for 4+ days and that's why he hasn't played SCP:SL. First off, I understand not calling me during your vacation, but *chilling?* Stop. Just stop. Second off: If you wanted to play SCP:SL, it's your falut for chilling.
+He also said he was at the beach or was chilling for 4+ days and that's why he hasn't played SCP:SL. First off, I understand not calling me during your vacation, but *chilling?* Stop. Just stop. Second off: If you wanted to play SCP:SL, it's your fault for chilling.
 
 
 Note to self: his username is Penguinitis#7895. Do not talk to this jerk since he won't talk to you.
