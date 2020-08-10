@@ -3,3 +3,5 @@ A fat turd who sits on his rump all day playing SCP:SL, and makes a lazy time of
 
 Update: just noticed that I told him what it has come down to, and he was like "lol k fine", like WTF oklomsy?
 <br><img src="wtfoklomsywhy.PNG" style="width: 15vw;">
+
+Note to self: his username is Penguinitis#7895. Do not talk to this jerk since he won't talk to you.
