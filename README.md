@@ -10,7 +10,7 @@ Update 2: I just noticed a few minutes before he replied the above he liked a tw
 
 Update 3: He said this.
 <br><img src="aifsdf.PNG" style="width: 15vw;"><br>
-My response: YOU ALWAYS PLAY SCP:SL, LIAR. Second off: Cosmos is easy to set up, you *obviousally* didn't even try! And third off: GEMS NT is much easier to program for than GEMS, so you could have at least TRIED. So you sack of shit, stop trying to defend yourself.
+My response: YOU ALWAYS PLAY SCP:SL, LIAR. (Update Dec. 26 2020: he plays tf2 mostly now like 60% of the time and 10% of the time is Roblox.) Second off: Cosmos is easy to set up, you *obviousally* didn't even try! And third off: GEMS NT is much easier to program for than GEMS, so you could have at least TRIED. So you sack of shit, stop trying to defend yourself.
 
 He also said he was at the beach or was chilling for 4+ days and that's why he hasn't played SCP:SL. First off, I understand not calling me during your vacation, but *chilling?* Stop. Just stop. Second off: If you wanted to play SCP:SL, it's your fault for chilling in the first place dude.
 
