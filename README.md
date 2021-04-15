@@ -16,10 +16,10 @@ My response: YOU ALWAYS PLAY SCP:SL, LIAR. (Update Dec. 26 2020: he plays tf2 mo
 He also said he was at the beach or was chilling for 4+ days and that's why he hasn't played SCP:SL. First off, I understand not calling me during your vacation, but *chilling?* Stop. Just stop. Second off: If you wanted to play SCP:SL, it's your fault for chilling in the first place dude instead of playing.
 
 
-Update: he unblocked me, but I posted memes and he blocked me again. What a moron. I have updated the statements accordingly
+Update 4: he unblocked me, but I posted memes and he blocked me again. What a moron. I have updated the statements accordingly
 
 I have since blocked him from even contributing since he's so useless.
 
-Update 2: (4/13/21) I decided to give him a couple more chances. One he blocked me for sending a meme, and the final one he said "oh I will only be gone awhile, I just want to play with *friend name redacted*" but 2-4 days later he said "oh tell him he may or may not be blocked forever." to another former friend. So you know what? I'm just gonna move on with my life, and block Oklomsy. 
+Update 5: (4/13/21) I decided to give him a couple more chances. One he blocked me for sending a meme, and the final one he said "oh I will only be gone awhile, I just want to play with *friend name redacted*" but 2-4 days later he said "oh tell him he may or may not be blocked forever." to another former friend. So you know what? I'm just gonna move on with my life, and block Oklomsy. 
 
 Public note: his username is SystemD#7895. Do not talk to this jerk since he won't talk to you, or if you post memes to him when he does talk to you, if it's the wrong kind of meme he *will* block you.
