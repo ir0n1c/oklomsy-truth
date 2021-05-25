@@ -29,5 +29,27 @@ Update 5: (4/13/21) I decided to give him a couple more chances. One he blocked 
 Public note: his username ends with id #7895. Do not talk to this jerk since he won't talk to you, or if you post memes to him when he does talk to you, if it's the wrong kind of meme he *will* block you.
 
 
-### The Final Verdict
+### The FALSE verdict
 Update 6 (4/21/21): He claims he's the problem now. I don't blame him, I personally agree. Basically he said "It's rather you need to find better friends than me, cause I treat you really badly which isn't healthy for our friendship." Cannot agree more, but it's such a shame our friendship had to end on such a bad note. Please friend him if you are expecting a nice quiet friend with ocasional... well he wouldn't want me to tell you exactly but let's just say "week long breaks." He also occasionally gets angry.
+
+### Serious this is final.
+He is a shitty excuse for a friend, I know he's gonna post about his claims I "DOXED" him. Really, this is what happened:
+* Try to play a small prank on him.
+  * This would basically involve my friend showing him his face, him being like "how did you get my face", and me being like "just a prank bro."
+* Give a fellow prankster the necessary face and he refused.
+  * Let's keep in mind he leaked a picture of his brother to me so I could draw it.
+  * He also regrets it as much as I regret these pranks.
+* Share the IP any idiot could have gotten to 2 of my best friends. Could have been gotten by:
+  * By pinging.
+  * By using an online skiddie "Get IP from URL" tool
+  * And NO, he doesnt use Cloudflare or ANY IP/DDOS protection
+  * Warned him several times, he refused. In fact he lies about Cloudflare being "insecure" and "blocking TOR users" when people could easily block that.
+  * He might call them "shady ddosers" but they are anything but.
+* Tried to make peace and friendship several times before resorting to pranking him like this.
+  * I was even willing to change myself to conform to his standards.
+  * He of course declined peace and friendship. So of course I was upset.
+  * Being a fellow nerd, of course I played this SMALL PRANK on Oklomsy to make myself feel better.
+* IPs can only get the City and Provence/State your in AT MOST. Whats wrong with giving that to 2 trustworthy people for a small joke?
+  * Especially since you could get it easily...
+* NSA already knows his face, so what's wrong with me sharing it with 1 friend that's trustworthy to play a prank? Especially since he REFUSED.
+And now, his friend and my former friend thinks I am the bad one and he's threatening to DDOS me. I now regret these pranks even if I shouldn't. As for "griefing pengwins server" and "hacking his discord server" this was a few year ago and I was a more aggressive person back then. As for "joking about suicide" I wasn't joking, I was genuinely depressed. Fuck oklomsy and fuck pengwin..
