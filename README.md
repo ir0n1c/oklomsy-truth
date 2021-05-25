@@ -52,6 +52,7 @@ He is a shitty excuse for a friend, I know he's gonna post about his claims I "D
 * IPs can only get the City and Provence/State your in AT MOST. Whats wrong with giving that to 2 trustworthy people for a small joke?
   * Especially since you could get it easily...
 * NSA already knows his face, so what's wrong with me sharing it with 1 friend that's trustworthy to play a prank? Especially since he REFUSED.
+
 <br>And now, his friend and my former friend thinks I am the bad one and he's threatening to DDOS me. I now regret these pranks even if I shouldn't. As for "griefing pengwins server" and "hacking his discord server" this was a few year ago and I was a more aggressive person back then. As for "joking about suicide" I wasn't joking, I was genuinely depressed. Fuck oklomsy and fuck pengwin..
 <br><img src="impossible-case-1.PNG" style="width: 15vw;"><br>
 <br><img src="impossible-case-4-not-joke.PNG" style="width: 15vw;"><br>
