@@ -32,7 +32,7 @@ Public note: his username ends with id #7895. Do not talk to this jerk since he 
 ### The FALSE verdict
 Update 6 (4/21/21): He claims he's the problem now. I don't blame him, I personally agree. Basically he said "It's rather you need to find better friends than me, cause I treat you really badly which isn't healthy for our friendship." Cannot agree more, but it's such a shame our friendship had to end on such a bad note. Please friend him if you are expecting a nice quiet friend with ocasional... well he wouldn't want me to tell you exactly but let's just say "week long breaks." He also occasionally gets angry.
 
-### Serious this is final.
+### Serious this is final. The Impossible Case. (5/25/21)
 He is a shitty excuse for a friend, I know he's gonna post about his claims I "DOXED" him. Really, this is what happened:
 * Try to play a small prank on him.
   * This would basically involve my friend showing him his face, him being like "how did you get my face", and me being like "just a prank bro."
@@ -53,3 +53,7 @@ He is a shitty excuse for a friend, I know he's gonna post about his claims I "D
   * Especially since you could get it easily...
 * NSA already knows his face, so what's wrong with me sharing it with 1 friend that's trustworthy to play a prank? Especially since he REFUSED.
 And now, his friend and my former friend thinks I am the bad one and he's threatening to DDOS me. I now regret these pranks even if I shouldn't. As for "griefing pengwins server" and "hacking his discord server" this was a few year ago and I was a more aggressive person back then. As for "joking about suicide" I wasn't joking, I was genuinely depressed. Fuck oklomsy and fuck pengwin..
+<br><img src="impossible-case-1.PNG" style="width: 15vw;"><br>
+<br><img src="impossible-case-2-only-citys.PNG" style="width: 15vw;"><br>
+<br><img src="impossible-case-3-ddoser.PNG" style="width: 15vw;"><br>
+<br><img src="impossible-case-4-not-joke.PNG" style="width: 15vw;"><br>
