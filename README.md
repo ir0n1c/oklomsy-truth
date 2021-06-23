@@ -1,4 +1,4 @@
-# Oklomsy Definition
+# Oklomsy Truth (formerly Oklomsy Definition)
 ## Made public as a PSA for anyone who doesn't know Oklomsy, but wants to add him.
 
 ### The original.
